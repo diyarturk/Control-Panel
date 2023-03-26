@@ -1,1 +1,3 @@
-![set-of-icons-related-to-banking-contains-such-icons-as-accounting-bank-bank-account-bank-statement-banking-banker-and-more-vector](https://user-images.githubusercontent.com/106431802/227779479-f976d7e2-5764-4a89-b598-f857aae1042c.jpg)
+Control Panel
+![image](https://user-images.githubusercontent.com/106431802/227780062-988eab3b-97c1-485a-9e79-2e2ca6a74c06.png)
+
